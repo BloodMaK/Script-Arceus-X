@@ -1,0 +1,2 @@
+# Script-Arceus-X
+Lol
